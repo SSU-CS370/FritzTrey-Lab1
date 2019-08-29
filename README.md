@@ -1,1 +1,0 @@
-# FritzTrey-Lab1
